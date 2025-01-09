@@ -6,9 +6,9 @@ What Are Nintendo eShop Gift Cards?
 
 Nintendo eShop gift cards are digital or physical cards loaded with a specific amount of money. You can use them to shop on Nintendo eShop. They work like a prepaid card and are accepted for almost all products on the platform. You can buy gift cards for yourself or give them as gifts to family and friends.
 
-[✅🌎👉CLICK HERE NOW GET FREE📌✅👇](https://they.rf.gd/es/)
+[✅🌎👉CLICK HERE NOW GET FREE📌✅👇](https://lookerstudio.google.com/s/temFnL-Mf-c)
 
-[✅🌎👉CLICK HERE NOW GET FREE📌✅👇](https://they.rf.gd/es/)
+[✅🌎👉CLICK HERE NOW GET FREE📌✅👇](https://lookerstudio.google.com/s/temFnL-Mf-c)
 
 Why Do People Want Free Nintendo eShop Gift Card Codes?
 
